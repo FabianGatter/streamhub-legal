@@ -53,4 +53,4 @@ We may update these Terms from time to time. Continued use of the App after chan
 
 ## 11. Contact
 
-If you have questions about these Terms, please contact us at fabiangatter@icloud.com.
+If you have questions about these Terms, please contact us at fabian.gatter@gmail.com.

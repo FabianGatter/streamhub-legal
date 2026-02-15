@@ -66,4 +66,4 @@ We may update this Privacy Policy from time to time. Continued use of the App af
 
 ## 11. Contact
 
-If you have questions about this Privacy Policy, please contact us at fabiangatter@icloud.com.
+If you have questions about this Privacy Policy, please contact us at fabian.gatter@gmail.com.
